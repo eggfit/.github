@@ -9,7 +9,7 @@ We are **TEAM EGGFIT**
 <br/>
 👩YeJi Lee https://github.com/yeahzee0421
 <br/>
-👩‍🦰MinJu Son https://github.com/mingu606
+👩‍🦰MinJu Son https://github.com/mango606
 
 **BACK**
 <br/>
